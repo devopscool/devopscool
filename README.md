@@ -11,6 +11,6 @@ Here are some brief introductions of me:
 - 🤔 I like to keep doing something until it makes me proud.
 - 🍚 I am paranoid about coding, like I love food, but I am very thin. 😮 
 - 📫 How to reach me: Send me a email.
-- ⚡ Fun fact: 
+- ⚡ Fun fact: None, I am a serious person. 🤠
 
 *The following is the related tools introduction*
