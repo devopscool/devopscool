@@ -13,4 +13,4 @@ Here are some brief introductions of me:
 - 📫 How to reach me: Send me a email.
 - ⚡ Fun fact: 
 
-* The following is the related tools introduction *
+*The following is the related tools introduction*
